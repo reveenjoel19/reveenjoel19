@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @reveenjoel
+- 🌱 I’m currently learning Electronics and Communication Engineering
+- 📫 Mail me at reveenjoel19@gmail.com
+- 😄 Pronouns: HE/HIM
